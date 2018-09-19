@@ -7,6 +7,7 @@ Current Position Description
 
 ## Education
 
+
 `1990 - 1994`
 __University Name__
 Degree Awarded
